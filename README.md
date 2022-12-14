@@ -1,1 +1,1 @@
-# Cards-of-Ar-osta
+# Cards-of-Ar'osta
